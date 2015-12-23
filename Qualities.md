@@ -7,10 +7,10 @@ Smart <br/>
 Giving <br/>
 Acctive <br/>
 Sociable <br/>
-Semi-Open <br/>
 Dedicated <br/>
 Adaptable <br/>
 Passionate <br/>
+Semi-Open <br/>
 Motivational <br/>
 Entrepreneurial <br/>
 proud (heritage) <br/>
